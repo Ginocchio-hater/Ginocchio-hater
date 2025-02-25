@@ -1,3 +1,7 @@
+![attaccogemelle](https://github.com/user-attachments/assets/82a4fdb8-8e76-4583-815b-b45c88b81c24)
+
+
+
 - 👋 Hi, I’m @Ginocchio-hater
 - 👀 I’m interested in killing Ginocchio
 - 🌱 I’m currently learning how to kill Ginocchio
